@@ -1,1 +1,0 @@
-# frtymn.github.tr
